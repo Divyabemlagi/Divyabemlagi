@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Divyabemlagi
 - 👀 I’m interested in Reading novels
-- 🌱 I’m currently learning cse 
+- 🌱 I’m currently Learning new Skills.
 - 💞️ I’m looking to collaborate on friends 
 - 📫 How to reach me divyaeshwar06@gmail.com
 
